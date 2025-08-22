@@ -1,1 +1,1 @@
-# vrbd
+I think a lot of gaming fans, when the first news about VR headsets and tech came out, had really high expectations that it would be something truly special. I definitely did. Right now I can’t really name many projects that impressed me. I’d probably mention [braindance vr](https://braindancevr.com/), but other than that, everything’s not at the level I’d like to see. So if you want a new experience, you have a VR headset, and you’re not against 18+ content, I recommend trying it.
